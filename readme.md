@@ -1,0 +1,1 @@
+<!-- Eksikleri var biliyorum fakat biraz daha bir şeyleri çözememeye devam etseydim kafayı yiyecektim. O yüzden böyle bıraktım. -->
